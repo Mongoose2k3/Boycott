@@ -1,9 +1,14 @@
 # Boycott
 
 # Summary
-1. tweet what you are boycotting and why
-2. call, email the companies you boycott and tell them why
-3. 
+##  Stage 1 - Boycott - putting public pressure
+1. Call, email the companies you boycott and tell them why
+2.  tweet what you are boycotting and why
+##  Stage 2 - Divestment
+3. Put pressure on the funds/banks who manages our money to divest from ProIsrael companies 
+1. tweet which you recommend 
+## Stage 3 - Getting The Goverment to Change its Foreign Policy
+1. 
 
 # BDS
   1. https://bdsmovement.net/
