@@ -8,7 +8,7 @@
 3. Put pressure on the funds/banks who manages our money to divest from ProIsrael companies 
 1. tweet which you recommend 
 ## Stage 3 - Getting The Goverment to Change its Foreign Policy
-1. 
+1. Need to implement Stage 1 and 3 first
 
 # BDS
   1. https://bdsmovement.net/
