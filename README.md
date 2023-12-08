@@ -3,10 +3,12 @@
 # Summary
 ##  Stage 1 - Boycott - putting public pressure
 1. Call, email the companies you boycott and tell them why
-2.  tweet what you are boycotting and why
+2. Tweet what you are boycotting and why
+
 ##  Stage 2 - Divestment
 3. Put pressure on the funds/banks who manages our money to divest from ProIsrael companies 
-1. tweet which you recommend 
+1. Tweet which banks and funds management you recommend
+   
 ## Stage 3 - Getting The Goverment to Change its Foreign Policy
 1. Need to implement Stage 1 and 3 first
 
