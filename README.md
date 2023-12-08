@@ -12,6 +12,7 @@
  1. https://www.whattoboycott.org/target/starbucks
  1. https://www.whattoboycott.org/target/kfc
  1. https://www.whattoboycott.org/target/walmart
+ 2. https://www.whattoboycott.org/target/hp
 
 # Videos to Watch
 
