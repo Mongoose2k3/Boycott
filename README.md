@@ -1,3 +1,6 @@
+<meta property="og:title" content="Boycott Israel">
+<meta property="og:description" content="Tools and Approach to a successful boycott.">
+  
 # Boycott
 
 # Summary
